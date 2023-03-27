@@ -1,3 +1,4 @@
 # rsschool-cv
 
-Abylkhaiyr
+
+https://Abylkhayir.github.io/rsschool-cv/cv)
